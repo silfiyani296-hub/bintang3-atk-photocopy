@@ -1,0 +1,1 @@
+# bintang3-atk-photocopy
